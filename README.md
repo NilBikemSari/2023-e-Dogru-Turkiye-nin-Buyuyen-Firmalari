@@ -1,0 +1,1 @@
+# 2023-e-Dogru-Turkiye-nin-Buyuyen-Firmalari
